@@ -1,0 +1,1 @@
+# Beregne-e-x-ved-bruk-av-datamaskin-Bacheloroppgave
